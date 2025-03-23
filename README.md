@@ -1,4 +1,4 @@
-"# FNF-Notes-for-LeandroLeandro" 
-"# FNF-Notes-for-LeandroLeandro" 
-"# FNF-Notes-for-LeandroLeandro" 
-"# FNF-Notes-for-LeandroLeandro" 
+FNF NOTESSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSS
+(NO CHART EDITOR)
+(SQUARE NOTES)
+(LOL)
